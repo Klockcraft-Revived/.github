@@ -12,5 +12,10 @@ We Are Klockcraft!
 👩‍💻 lax1dude: Not in klockcraft!
 
 👩‍💻 RaveTek: The reviver of klockcraft!
+
+
+
+
+
 **Welcome!**
 ![0.30 demo](https://github.com/Klockcraft-Revived/.github/blob/main/profile/images.jpeg?raw=true)
