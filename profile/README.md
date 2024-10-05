@@ -7,7 +7,7 @@ We Are Klockcraft!
 **Meet The Creators!**
 👩‍💻 AR-DEV-1: Now will code with klockcraft!
 
-👩‍💻 BtplayzX: Does not have an account anymore!
+👩‍💻 BtplayzX: @Btplayzxgit3 is back! now will give credit to him.
 
 👩‍💻 lax1dude: Not in klockcraft!
 
